@@ -1,1 +1,0 @@
-# Segundo_corte
